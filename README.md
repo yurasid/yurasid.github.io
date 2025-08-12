@@ -1,1 +1,0 @@
-# yurasid.github.io
